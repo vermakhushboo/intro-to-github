@@ -5,6 +5,3 @@
 
 [Arko](https://twitter.com/arkodyutisaha)📍 from Siliguri, India 
 
-![](https://media.giphy.com/media/heIX5HfWgEYlW/giphy.gif)
-
-Khushboo from Delhi, India
